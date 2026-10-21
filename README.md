@@ -1,1 +1,1 @@
-# cooling-
+Every once in a while I like to look back at everything I’ve bought for my home, I mean stuff for the house, gadgets, little helpers, and pick out the best ones. This month it’s definitely a [cooling body pillow](https://www.sheex.com/products/nightfall-body-pillow), and I don’t know who the genius is who finally figured out that a pillow isn’t just for under your head, you can put one at your side to sleep more comfortably. My sleep has definitely gotten way better.	
